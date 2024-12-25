@@ -1,0 +1,1 @@
+# Pratik6---ForPratikleri
